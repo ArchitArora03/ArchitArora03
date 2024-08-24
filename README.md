@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **LLM's and Generative AI**
 
-- 📫 Reach me at **archit.arora.sms@gmail.com**
+- 📫 Reach me at **architarora552@gmail.com**
 
 
 
